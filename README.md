@@ -4,9 +4,13 @@
 - 💞️ I’m looking to collaborate on ...Hiring the People for new Job opportunities 
 - 📫 How to reach me ... 
 - Vandana
+
 HR Manager
+
 Mobile/whatsapp: +601114722137
+
 Email: vandana@tech-sd.com
+
 Website: www.tech-sd.com
 
 <!---
